@@ -1,0 +1,13 @@
+# Hi, I'm Asma Ramzan 👋
+
+🎓 BSIT Student
+📊 Data Analysis Enthusiast
+🔍 B2B & LinkedIn Lead Generation Specialist
+📈 Digital Marketing Learner
+📋 Google Sheets & Microsoft Office Expert
+💻 Exploring Automation and Scripting
+
+This GitHub profile contains my projects, learning resources, templates, and technical work related to data analysis, lead generation, and automation.
+
+[[my linkdien profile ]](https://www.upwork.com/freelancers/~0157ad404a6158855f?viewMode=1)
+📫 Open to freelance opportunities and collaborations.
